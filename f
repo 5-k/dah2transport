@@ -1,0 +1,1 @@
+https://join.slack.com/t/movehack2018/shared_invite/enQtNDIyNTY3NzE4NTkyLWYwYTVjMTBhODkyMjVjZmY1NzRkMzY4MDIxMDM4NTBhNDkwMGZmZGJlNzA3NWEyZjQzOWU1ZWEyZTI1Mjk0NGQ
